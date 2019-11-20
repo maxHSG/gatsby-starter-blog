@@ -27,11 +27,4 @@ dadadadadada
 
 
 fa
-fafafafafafa
-fafafafa
-fafafafaa
-a
-t
-a
-t
-atata
+O bagulho é loko msm
