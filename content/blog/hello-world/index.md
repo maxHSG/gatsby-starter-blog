@@ -21,10 +21,4 @@ Oh, and here's a great quote from this Wikipedia on
 
 ![Chinese Salty Egg](./salty_egg.jpg)
 
-dadadadadadadadad
-ad
-d
-a
-d
-a
-da
+face
