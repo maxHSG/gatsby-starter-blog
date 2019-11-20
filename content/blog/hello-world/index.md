@@ -21,4 +21,10 @@ Oh, and here's a great quote from this Wikipedia on
 
 ![Chinese Salty Egg](./salty_egg.jpg)
 
-fdafafafa
+dadadadadadadadad
+ad
+d
+a
+d
+a
+da
