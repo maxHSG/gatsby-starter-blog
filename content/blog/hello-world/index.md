@@ -24,16 +24,3 @@ Oh, and here's a great quote from this Wikipedia on
 d
 dadadadada
 
-
-
-d
-dadadadada
-d
-dadadadada
-dadadadadadadadadadafafafafaf
-d
-dadadadada
-dadaddada
-dadadaddadadaddaddadadadadfafafafafafaffafaffafafafaffafa
-dadadaddadadadadadadada
-fafafafafafafaf
